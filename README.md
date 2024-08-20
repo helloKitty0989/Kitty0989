@@ -5,4 +5,5 @@
 -ЦƧӨ ΣƧƧΣ ЯΣPӨƧIƬӨЯIӨ PΛЯΛ ΛЦᄂΛƧ DΛ PᄂΛƬΛFӨЯMΛ ΛᄂЦЯΛ.
 -ΣПƬЯΛ ΣM ᄃӨПƬΛƬӨ ᄃӨMIGӨ PΣᄂӨ MΣЦ ΣMΛIᄂ:00001097905111sp@al.educacao.sp.gov.br
 
-![]https://media1.tenor.com/m/aLwFMU27IwQAAAAC/mim-de.gif
+![]![image](https://github.com/user-attachments/assets/43f48cc4-b544-40fd-84e3-fc33bad1a56c)
+
